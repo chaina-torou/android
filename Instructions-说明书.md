@@ -2,4 +2,4 @@
 
 
 Personal experience of Android project and part of the teaching, no experience, bug may be more, but I will continue to surprise everyone.
-------------Bronze player Gu Gemeng
+------------Bronze player Google dream
